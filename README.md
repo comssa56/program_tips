@@ -1,2 +1,2 @@
 # program_tips
-write program tips
+“úXAŒ©‚Â‚¯‚½TIPS‚ğÏ‚İã‚°‚é
